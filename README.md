@@ -1,16 +1,15 @@
-## Hi there 👋
+## Chống thấm Đức Vượng
 
-<!--
-**chongthamducvuong/chongthamducvuong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Đức Vượng chuyên cung cấp các dịch vụ chống thấm tại Hà Nội cho mọi công trình, từ nhà ở, chung cư, nhà xưởng đến các công trình công nghiệp
 
-Here are some ideas to get you started:
+- Địa chỉ: Phúc Thọ – Mai Lâm – Đông Anh – Hà Nội
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 0866086179
+
+- Website: https://chongthamducvuong.com
+
+https://www.pinterest.com/ducvuongchongtham/
+
+https://www.youtube.com/channel/UC8-gUSqFAkubTJv7482YMKg
+
+https://www.twitch.tv/chongthamducvuong
